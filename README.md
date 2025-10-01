@@ -12,7 +12,8 @@ Sellyjuan Alya Rosalina H1D023006 SHIFT A/C
 ![](Pertemuan4.gif)
 
 # Tugas 4 Pertemuan 5
-![](Pertemuan5.gif)
+![](pertemuan5.gif)
+
 
 
 
